@@ -1,6 +1,7 @@
 ## Bands
 
 * massive attack
+* emiliana torrini
 * sneaker pimps
 * 8mm
 * tricky
@@ -21,5 +22,5 @@
 * fckahuna  - hayling
 * 99 posse  - corto circuito
 * DJ Krush  - kemuri
-
+* emiliana torrini - gun
 
