@@ -1,3 +1,5 @@
+kryptic minds
+
 Big Bad Wolf - The Heavy
 reso - move it 
 ica hands - krakota
