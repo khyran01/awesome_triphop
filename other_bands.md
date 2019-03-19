@@ -1,10 +1,17 @@
 kryptic minds
+treologic
+ytcracker
+kungs vs cooking
 
 Big Bad Wolf - The Heavy
 reso - move it 
 ica hands - krakota
 Money Is Not Our God - Killing Joke
 Eve - Let Me Blow Ya Mind 
+longshot - day by day
+squarepusher - dark steering
+Raydar - Champion Tech
+Satellite - Echodroides
 
 sub hero - huntie
 dj disarray - no longer the same
