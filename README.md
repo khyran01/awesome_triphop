@@ -1,6 +1,7 @@
 ## Bands
 
 * massive attack
+* the chemical brothers
 * emiliana torrini
 * sneaker pimps
 * 8mm
@@ -15,6 +16,7 @@
 * UNKLE
 * pendulum
 * DJ Krush 
+* groove armada
 
 
 ## Songs

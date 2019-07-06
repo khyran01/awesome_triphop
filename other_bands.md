@@ -2,6 +2,7 @@ kryptic minds
 treologic
 ytcracker
 kungs vs cooking
+Groove Armada - Edge Hill
 
 Big Bad Wolf - The Heavy
 reso - move it 
@@ -25,4 +26,8 @@ colorblindnb - join the resistance
 robx - bleeding through
 robx - revenge i seek
 
+emmanuelle - itallove
+
 Timecrawler 82 http://freemusicarchive.org/music/Timecrawler_82/
+
+
