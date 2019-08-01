@@ -30,4 +30,16 @@ emmanuelle - itallove
 
 Timecrawler 82 http://freemusicarchive.org/music/Timecrawler_82/
 
+more electronica based:
+https://nervoustestpilot.co.uk/
+
+Cool Online Radio
+https://poolside.fm
+
+
+poolside songs found:
+https://poolside.fm/?share=default:588985905  gavin turek elevator
+
+
+basically most of the "wonky music" is cool
 
