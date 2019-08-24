@@ -1,3 +1,5 @@
+Kidneythieves (these are also in deus ex), e.g., feathers
+Some electronica-Industrial rock bands are also worth to check out
 kryptic minds
 treologic
 ytcracker
@@ -43,3 +45,5 @@ https://poolside.fm/?share=default:588985905  gavin turek elevator
 
 basically most of the "wonky music" is cool
 
+## DNB
+logistics - your time
