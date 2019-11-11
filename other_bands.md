@@ -1,3 +1,12 @@
+the algorithm https://www.youtube.com/watch?v=CDS9gmdHtB8
+The XX - Crystalised
+3d stas or https://www.youtube.com/watch?v=0vIUm4UPEZQ
+
+programming music deus ex music is cool
+David Bowie - Fame
+kode 9
+Crime of Curiosity by Amplitude Problem
+Hive
 Kidneythieves (these are also in deus ex), e.g., feathers
 Some electronica-Industrial rock bands are also worth to check out
 kryptic minds
@@ -8,7 +17,7 @@ Groove Armada - Edge Hill
 
 Big Bad Wolf - The Heavy
 reso - move it 
-ica hands - krakota
+ice hands - krakota
 Money Is Not Our God - Killing Joke
 Eve - Let Me Blow Ya Mind 
 longshot - day by day

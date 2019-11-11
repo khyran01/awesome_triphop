@@ -3,6 +3,8 @@
 * massive attack
 * the chemical brothers
 * emiliana torrini
+* amon tobin
+* Doctor Bionic
 * sneaker pimps
 * 8mm
 * tricky
