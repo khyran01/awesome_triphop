@@ -1,13 +1,16 @@
 the algorithm https://www.youtube.com/watch?v=CDS9gmdHtB8
 The XX - Crystalised
+android lust
+snake river conspiracy
 3d stas or https://www.youtube.com/watch?v=0vIUm4UPEZQ
+Oneohtrix Point Never (experimental, found with movie good time)
 
 programming music deus ex music is cool
 David Bowie - Fame
 kode 9
 Crime of Curiosity by Amplitude Problem
 Hive
-Kidneythieves (these are also in deus ex), e.g., feathers
+Kidneythieves (these are also in deus ex), e.g., feathers, arsenal
 Some electronica-Industrial rock bands are also worth to check out
 kryptic minds
 treologic

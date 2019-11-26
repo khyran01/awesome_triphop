@@ -1,6 +1,8 @@
 ## Bands
 
 * massive attack
+* kidneythieves
+* snake river conspiracy
 * the chemical brothers
 * emiliana torrini
 * amon tobin
