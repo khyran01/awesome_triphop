@@ -1,3 +1,13 @@
+To check out: (similar to dissolved girl and teardrop)
+- Nine Inch Nails - Ghosts I-IV (cool)
+- cEvin Key and Ken "Hiwatt" Marshall - The Dragon Experience
+- Coil - ....And the Ambulance Died in His Arms
+- Graeme Revell - The Crow Original Motion Picture Soundtrack
+- Autechre (instrumental)
+- plastikman
+- Portishead (roads, its a fire, wandering stars), tricky(How high, aftermath), morcheeba, sneaker pimps, ruby (paraffin) are kinda similar, but not too many instrumental.
+ - https://www.youtube.com/watch?v=7GgZKbTJ67k (letfield check out)
+search for electro industrial bands, such as front line assembly
 the algorithm https://www.youtube.com/watch?v=CDS9gmdHtB8
 The XX - Crystalised
 android lust
