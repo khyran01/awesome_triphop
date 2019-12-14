@@ -1,5 +1,7 @@
+Gabriel Yared-Betty Blue (not electronic nor triphop but cool) (the real title is "C'est le vent, Betty")
 To check out: (similar to dissolved girl and teardrop)
 - Nine Inch Nails - Ghosts I-IV (cool)
+- Nine Inch Nails, Closer
 - cEvin Key and Ken "Hiwatt" Marshall - The Dragon Experience
 - Coil - ....And the Ambulance Died in His Arms
 - Graeme Revell - The Crow Original Motion Picture Soundtrack
