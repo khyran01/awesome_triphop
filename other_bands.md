@@ -1,4 +1,7 @@
+telefon tel aviv
 Gabriel Yared-Betty Blue (not electronic nor triphop but cool) (the real title is "C'est le vent, Betty")
+trent reznor, on we march
+sneaker pimps - 6 underground
 To check out: (similar to dissolved girl and teardrop)
 - Nine Inch Nails - Ghosts I-IV (cool)
 - Nine Inch Nails, Closer
