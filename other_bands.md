@@ -74,3 +74,12 @@ basically most of the "wonky music" is cool
 
 ## DNB
 logistics - your time
+
+
+## Royalty Free Cool
+the art of escapism
+https://www.youtube.com/watch?v=0ahS4dTX6Pw   (Let's apocalypse later)
+https://www.youtube.com/watch?v=G0GUQxvehVM   (dawn of the cosmos )
+Sanctuary Of The Sky Gods - Nathaniel Wyvern (Royalty Free Music)
+https://www.youtube.com/watch?v=J2dBHC0G39Y (space rhythm 2 royalty free music)
+

@@ -4,6 +4,7 @@
 * kidneythieves
 * snake river conspiracy
 * the chemical brothers
+* kryptic minds
 * emiliana torrini
 * amon tobin
 * Doctor Bionic
