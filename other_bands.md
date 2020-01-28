@@ -1,3 +1,4 @@
+https://www.youtube.com/watch?v=A4F414LFY6I&feature=youtu.be (plurabelle - our fires)
 telefon tel aviv
 Gabriel Yared-Betty Blue (not electronic nor triphop but cool) (the real title is "C'est le vent, Betty")
 trent reznor, on we march
@@ -75,6 +76,9 @@ basically most of the "wonky music" is cool
 ## DNB
 logistics - your time
 
+## Datacode
+https://www.youtube.com/watch?v=LN_DcIE8EPo (datacode - wraithmachine)
+
 
 ## Royalty Free Cool
 the art of escapism
@@ -83,3 +87,6 @@ https://www.youtube.com/watch?v=G0GUQxvehVM   (dawn of the cosmos )
 Sanctuary Of The Sky Gods - Nathaniel Wyvern (Royalty Free Music)
 https://www.youtube.com/watch?v=J2dBHC0G39Y (space rhythm 2 royalty free music)
 
+## Horror
+(coil 2.5 dimethoxy)
+https://www.youtube.com/watch?v=0H4-_LdbD14&feature=youtu.be
