@@ -1,3 +1,4 @@
+https://www.youtube.com/watch?v=jKO0KsTI7h0 (best of dark electro music mix future fox mixed by cable)
 https://www.youtube.com/watch?v=A4F414LFY6I&feature=youtu.be (plurabelle - our fires)
 telefon tel aviv
 Gabriel Yared-Betty Blue (not electronic nor triphop but cool) (the real title is "C'est le vent, Betty")
