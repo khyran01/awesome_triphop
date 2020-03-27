@@ -25,11 +25,20 @@
 
 
 ## Songs
+
+* Sneaker Pimps - SP4 (Full Album) Remastered
+* DJ Shadow - Midnight in a Perfect World
+* Unkle - Bloodstain
 * max romeo - chase the devil
 * fckahuna  - hayling
 * 99 posse  - corto circuito
 * DJ Krush  - kemuri
 * emiliana torrini - gun
+* Bloodsport - Sneaker Pimps
+* Low Place Like Home - Sneaker Pimps
+* Sneaker Pimps - In The Blue (Single)
+* Puracane - Anyone Else
+* DJ Shadow - My Lonely Room
 
 ## Hack
 
