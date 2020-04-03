@@ -2,9 +2,19 @@
 
 * massive attack
 * kidneythieves
+* Black Era
 * snake river conspiracy
 * the chemical brothers
 * kryptic minds
+* 21 Hertz
+* Blicq
+* Blue Foundation
+* Cinephile
+* Elenika
+* Porcelaintoy
+* Puracane
+* Sound me
+* zelmershead
 * emiliana torrini
 * amon tobin
 * Doctor Bionic
