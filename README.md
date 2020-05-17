@@ -2,7 +2,8 @@
 
 * massive attack
 * kidneythieves
-* Black Era
+* black Era
+* bowery electric
 * snake river conspiracy
 * the chemical brothers
 * kryptic minds
