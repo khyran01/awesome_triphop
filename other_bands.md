@@ -2,6 +2,20 @@
 FROM: ULTRALIGHT - A Synthwave Chillwave Cyber Mix Special
 Nightfall Sigma - Star Eater and others (https://www.youtube.com/watch?v=M-18dw1RTdU)
 (
+Cyberpunk mix https://www.youtube.com/watch?v=847a_fQhm0E
+
+Dark Cyberpunk mix https://www.youtube.com/watch?v=Fz9GO3eNb6I
+00:00 | Hyper - New Wave 
+03:26 | Kloud - Insane 
+06:28 | Aim To Head - E.M.P.eror 
+09:56 | Hyper - Flatline 
+13:30 | Hatred - Trauma 
+18:41 | Sierra - Gone 
+22:18 | Gosha - Reason8 
+26:16 | SWARM - Take Me To Hell 
+31:24 | Owl Vision - Holy Sh*t
+35:55 | Revizia - Blodet 
+40:47 | Neo Fresco - Sublimation 
 
 hernan perez floating again - https://www.youtube.com/watch?v=btri5MgSL6o
 lovage - stroker ace
