@@ -1,3 +1,9 @@
+# Dark Industrial Electro Techno
+(Dark Techno / Industrial / Cyberpunk Mix 'Revenge' | Dark Electro)
+https://www.youtube.com/watch?v=eWN2kMFVo2c e.g., Max Brhon - The Future
+
+https://www.youtube.com/watch?v=-F74QYqQ2T4 (dark clubbing / dark techno / EBM / Industrial mix )
+
 # Synthwave/Chillwave
 FROM: ULTRALIGHT - A Synthwave Chillwave Cyber Mix Special
 Nightfall Sigma - Star Eater and others (https://www.youtube.com/watch?v=M-18dw1RTdU)
