@@ -1,5 +1,7 @@
 # Dark Industrial Electro Techno
 (Dark Techno / Industrial / Cyberpunk Mix 'Revenge' | Dark Electro)
+max brhon in general
+and NoCopyrightSounds (NCS)
 https://www.youtube.com/watch?v=eWN2kMFVo2c e.g., Max Brhon - The Future
 
 https://www.youtube.com/watch?v=-F74QYqQ2T4 (dark clubbing / dark techno / EBM / Industrial mix )
