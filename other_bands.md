@@ -1,3 +1,10 @@
+under black helmet - impulsive behavior
+https://www.youtube.com/watch?v=W4GxVtJqRcQ (Groove Dub Techno mix) -> dub techno is cool
+
+two sided agency - nostalgia for lost futures (acid techno)
+- quasar i never thought
+please stay (very cool song)
+tempers - strangest harvest (darkwave)
 # Dark Industrial Electro Techno
 (Dark Techno / Industrial / Cyberpunk Mix 'Revenge' | Dark Electro)
 Julian Winding - "Demon Dance" (The Neon Demon OST)
