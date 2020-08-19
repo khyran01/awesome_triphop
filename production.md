@@ -2,7 +2,8 @@
 
 ## DAW
 
-- Ardour (as a DAW)
+- LMMS
+- Ardour
 
 
 ## Books
