@@ -132,3 +132,8 @@ https://www.youtube.com/watch?v=J2dBHC0G39Y (space rhythm 2 royalty free music)
 ## Horror
 (coil 2.5 dimethoxy)
 https://www.youtube.com/watch?v=0H4-_LdbD14&feature=youtu.be
+
+
+## Hackerspace
+
+https://wiki.hackerspaces.org/HackerSoundScapes
