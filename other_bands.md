@@ -1,3 +1,13 @@
+# Alternative hip hop / Jazz Hop
+
+a tribe called quest 
+slum village
+
+
+
+# Other
+
+
 under black helmet - impulsive behavior
 https://www.youtube.com/watch?v=W4GxVtJqRcQ (Groove Dub Techno mix) -> dub techno is cool
 
